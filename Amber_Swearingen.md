@@ -1,1 +1,1 @@
-Hello! I am Amber Swearingen and i enjoy graphic design and everything tech.
+Hello! I am Amber Swearingen and i love graphic design and everything tech.
